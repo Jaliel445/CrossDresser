@@ -19,3 +19,14 @@ or dress, then shoes. And, finally, the wig.
 hide you. The same goes for the wig. Pick a style
 and color that makes you stand out in a crowd. Now,
 go out and have a good, LadyLike day.
+
+    Hello. It's me again. Now have you paid attention
+to the news. People that are LGBQ are not aloud in the same
+classroom as the other kids. What a screwed up mess is that.
+    When our government decides on a topic like this, 
+it isn't Democracy any more, it's almost Socialism.
+But, it's not all the government's fault. It's basically
+the fault of those people who are HOMOPHOBES. 
+       WHAT A BUNCH OF BUTTHOLES THEY ARE!!!!
+
+    Hope you have a LadyLike day!!
